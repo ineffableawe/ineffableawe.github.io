@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Not Buying It"
+date: 2026-10-29 04:23:56 -0500
+categories: ["blog"]
+tags: ["doubt"]
+description: "Miracles aren't proof"
+---
+
+> "Is it more probable that nature should go out of her course, or that a man should tell a lie? We have never seen, in our time, nature go out of her course; but we have good reason to believe that millions of lies have been told in the same time." —Thomas Paine
+
+If I told you that a snake or a donkey talked to me last night, you'd be right to think I need to be evaluated. If I told you that a flood was about to come that would drown the whole world even to the top of Mt. Everest, why believe me? If I told you that a 600-year-old man built a boat and gathered enough food to feed himself, seven other people, and two of every kind of animal for 150 days, it'd be ok to doubt me. What about a man calling down fire on command? Yep, doubt it. Or that the same man and a guy named Enoch, a young man of only 365 years, both ascended into heaven instead of dying? I don't think so. How about the sun standing still (i.e., the earth ceasing to rotate for several hours) so an army could win a battle? Well, now, there is a private company who is trying to install satellites to reflect sunlight down to Earth at night, but I don't think that's what the scripture meant. What about resurrection of the dead? Burn the body first, and then talk to me about the possibility of such a miracle. Walking on water? Maybe through a trick of surface tension, but forgive me if I would have to ask you to get your eyes checked.
+Could I tell you anything that has never happened—that is impossible according to the natural order of things—and have you believe me to be telling the truth? I sometimes wish Christianity were merely a philosophy of lovingkindness, of mercy, of grace, of charity, of longsuffering, rather than this amalgamation of absurdities that demand the suspension of the use of our natural faculties of reason and observation. Even if the aforementioned miracles were merely parables, the need to appeal to such miracles diminishes the impact of the message. I have to ignore the nonsense that babies can be fathered by incorporeal beings of celestial origin and that blind eyes can be commanded to work in order to arrive at the concept of forgiveness of wrongdoings.
+Well, I'm not convinced, and I am almost certain that neither are most people who claim to be. I don't "believe" that the sun has burned my skin after a day at the beach or that sand has gotten onto my sandwich. I don't "believe" that my radio can pick up music and speech from miles away. These are facts. People "believe" in Hell, in everlasting life, and in the will of God in their daily lives. These are not the same. If the fate of an individual hinges upon their acquiescence to miraculous claims, then how unfortunate we are to have been gifted with reason.
